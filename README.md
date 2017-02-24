@@ -1,2 +1,2 @@
 # first
-the fiyrst do it 
+the first do it  
